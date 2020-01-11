@@ -1,0 +1,2 @@
+# aku-orang-susah
+gasjken 
